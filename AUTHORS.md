@@ -4,3 +4,4 @@ Adnan Hajro
 Lejla Muratović
 Dino Kečo
 Bećir Isaković
+Mirza Krupić
